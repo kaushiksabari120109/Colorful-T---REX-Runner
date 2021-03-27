@@ -1,1 +1,1 @@
-# Colorful-T---REX-Runner
+# Colorful-TREX-Runner
